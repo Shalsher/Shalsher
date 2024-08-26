@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @Shalsher
+- 👀 I’m interested in Technology     
+- 🌱 I’m currently pursuing Engineering 
