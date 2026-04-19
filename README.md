@@ -8,7 +8,7 @@
 [![Instagram](https://img.shields.io/badge/Instagram-E4405F?style=for-the-badge&logo=instagram&logoColor=white)](https://www.instagram.com/omsabale_999/)
 [![Gmail](https://img.shields.io/badge/Gmail-D14836?style=for-the-badge&logo=gmail&logoColor=white)](mailto:omsabale27@gmail.com)
  
-📍 Pune, Maharashtra, India &nbsp;|&nbsp; 📞 +91 77588 83707
+📍 Pune, Maharashtra, India &nbsp;|&nbsp; 
  
 </div>
  
